@@ -7,3 +7,4 @@
 6. Dinara Bakir kyzy
 7. Nurzat Zhamalbek kyzy
 8. Nadyrbek Baktybek uulu
+9. Arzygul Ergeshova
